@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Amen a skher
 - 👀 I’m interested in science, story writing, animation and music
-- 🌱 I’m currently learning Electrical and computer engineering
+- 🌱 I’m A Electrical and Computer Engineering Graduate
 - 💞️ I’m looking to collaborate on any projects i can use the skills i've gain on. or even learn a new skill for a project
 - 📫 How to reach me : amenaskher.cudjoe@gmail.com, @mynameamen on instagram, and https://www.linkedin.com/in/amen-a-skher-cudjoe/
 
